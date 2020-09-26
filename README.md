@@ -1,0 +1,1 @@
+The recipe is a step by step process into cooking/baking/making any sort of edible item. In this case, this is a recipe for making a salad.
